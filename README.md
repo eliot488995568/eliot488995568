@@ -8,6 +8,4 @@
 
 💼 Beyond coding, I'm all about giving back to the community and contributing to open source projects. Let's collaborate and make some digital magic happen!
 
-🎮 When I'm not coding, you can find me leveling up in video games, hitting the slopes for some skiing action, or enjoying a round of board games with friends.
-
 📫 Want to chat? Drop me a line at eliot.lauger@hotmail.fr or connect with me on www.linkedin.com/in/eliot-lauger-7b1783150.
